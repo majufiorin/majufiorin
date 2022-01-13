@@ -1,4 +1,4 @@
-### Oi! Eu sou  Maju Fiorin ♑👋  
+### Oi! Eu sou a Maria Júlia ♑👋  
 
 - 🔭 Uma Assistente Administrativa em busca de transição de carreira.
 - 🌱 Estou aprendendo HTML5 | CSS3 | JavaScript | Git | GitHub.
