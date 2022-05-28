@@ -10,8 +10,8 @@
 
 📫 Como chegar até mim: mariajulia.fiorin@hotmail.com
 
-🐶 Curiosidades: Apaixonada por animais e tecnologia 
+🐶 Curiosidades: Apaixonada por animais e tecnologia. 
 
-In Constant Evolution ... 💎
+In constant evolution ... 💎
 
 ![e888d4feff8fd5ff63a965471a94b874](https://user-images.githubusercontent.com/97350806/170828408-46ab2e95-2a7a-44e1-a890-11114b58c040.gif)
