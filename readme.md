@@ -3,7 +3,7 @@
 ### Eu sou a Maria Júlia 👋🏻
   
 > Atuando há 12 anos no mercado de trabalho, na área Administrativa.
-> Formada em Comunicação Social, com ênfase em Publicidade e Propaganda, com conhecimentos básicos em Inglês.
+> Formada em Comunicação Social, com ênfase em Publicidade e Propaganda, conhecimentos básicos em Inglês.
 > Em busca da minha tão sonhada **oportunidade de transição de carreira**. 
 
 ## Sobre mim.
