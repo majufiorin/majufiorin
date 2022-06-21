@@ -8,10 +8,15 @@
 
 ## Sobre mim.
 🔭  Desenvolvedora Frontend, < loading /> ...
+
 🌱  Estudando HTML5 | CSS3 | JavaScript | Git | Github, entre outras Tecnologias.
+
 🔎  Procurando oportunidades de crescimento pessoal e profissionalmente.
+
 ✌🏻  Em busca de aprendizado, evolução e coletividade, sempre!
+
 📫  Como chegar até mim:  [mariajulia.fiorin@hotmail.com](mailto:mariajulia.fiorin@hotmail.com)
+
 🐶  Curiosidade: **Apaixonada por animais e tecnologia**.
 
 Em constante evolução ...  🙏🏻 | ♑   |    ♐️  |  ♒️ 
